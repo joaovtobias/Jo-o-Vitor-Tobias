@@ -1,2 +1,2 @@
-# Jo-o-Vitor-Tobias
+# Joao-Vitor-Tobias
 https://github.com/Danndillo/projeto-legal.git
